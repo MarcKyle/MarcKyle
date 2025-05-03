@@ -7,7 +7,7 @@
 
 I'm a Computer Science Undergraduate and aiming to be a Future Software Engineer.<br>I also have experience in various programming languages and technologies.
 
-[Steam](https://steamcommunity.com/id/_MonDY_/) | [Discord](https://discordapp.com/users/447286089716072448)
+[Steam](https://steamcommunity.com/id/_MonDY_/) | [Discord](https://discordapp.com/users/447286089716072448) | [Website](http://jimenamarckyle.me/)
 
 ---
 
